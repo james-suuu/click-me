@@ -10,4 +10,4 @@ Looking forward to hearing from you and hoping we can catch up soon.
 With love,
 
 [nyenyenye]
-<img align="right" alt="cat" width="300" src="https://th.bing.com/th/id/OIP.mXDClUXqFKQpBTaN1liGqwAAAA?rs=1&pid=ImgDetMain">
+<img align="right" alt="cat" width="250" src="https://th.bing.com/th/id/OIP.mXDClUXqFKQpBTaN1liGqwAAAA?rs=1&pid=ImgDetMain">
